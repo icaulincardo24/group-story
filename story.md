@@ -1,3 +1,3 @@
 # Group Story
 
-Once upon a time, an alien and a cowboy met in a coffee shop...
+Once upon a time, an alien and a cowboy met in a coffee shop... A robot suddenly walked through the door.
